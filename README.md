@@ -36,7 +36,7 @@ sneeze or speak.In the current scenario the only system having to maintain the s
 
 https://user-images.githubusercontent.com/88380911/147872476-412077e5-6652-43fc-a033-ba26e642e903.mp4
 
-https://user-images.githubusercontent.com/88380911/147872476-412077e5-6652-43fc-a033-ba26e642e903.mp4
+https://user-images.githubusercontent.com/88380911/147911548-e02320f8-12e3-415c-819f-71c09fe89217.mp4
 <hr>
 
 ## Thanks for the read
